@@ -1,3 +1,25 @@
+
+
+(((note from graylan))
+
+
+hey yall
+
+its me graylan
+
+
+i want my efforts to last generations and like satoshi's not be about who i am, but what they do for humanity
+
+
+yall keep it real in the multiverse
+
+--graylan
+
+
+
+
+chatlog(()
+
 they believed in satoshis maybe they believe in me
 ChatGPT said:
 
